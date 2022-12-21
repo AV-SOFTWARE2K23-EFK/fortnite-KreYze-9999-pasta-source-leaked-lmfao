@@ -1,7 +1,7 @@
 # fortnite-KreYze-9999-pasta-source-leaked-lmfao
 j'ai eu la source par lui même car il avait demander si je pouvais update la source et je me suis rendu compte que c'etait une source public qu'il vous vends lmfao
 
-avant tout voici mon serveur si vous voulez plus d'info sur l'histoire ou alors pour des demande d'aide pour le DA ou autre : https://discord.gg/VMHfdwzWC4
+avant tout voici mon serveur si vous voulez plus d'info sur l'histoire ou alors pour des demande d'aide pour le DA ou autre : https://discord.gg/c9qYP2epGA
 
 j'ai eu la source par lui même car il avait demander si je pouvais update la source et je me suis rendu compte que c'etait une source public qu'il vous vends lmfao
 
