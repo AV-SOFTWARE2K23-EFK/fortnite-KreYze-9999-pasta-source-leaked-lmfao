@@ -7,6 +7,7 @@ j'ai eu la source par lui même car il avait demander si je pouvais update la so
 
 screenshot #1 : https://cdn.discordapp.com/attachments/973380952363507822/1053517592255549511/image.png
 screenshot #2 : https://cdn.discordapp.com/attachments/973380952363507822/1053517794668458064/image.png
+video proof : https://cdn.discordapp.com/attachments/1063952853451948105/1066832694161444884/2023-01-22_21-52-40.mp4
 
 il a essayé de crack mon cheat lol : https://cdn.discordapp.com/attachments/1030613189597069362/1053471366457868429/image.png
 
@@ -26,7 +27,7 @@ il dit faire du (HTML,CSS,JS,Python,C#,C++,Dart,Processing 3,Arduino et d'autre 
 MAINTENANT DES INFO UTILES : 
 
 SCAMMER : KreYze#9999
-SON SERVER : https://discord.com/invite/KtZqtPTRZF
+SON SERVER : https://discord.gg/kreyze
 IP : 176.133.49.63
  
 nouvelle info :
